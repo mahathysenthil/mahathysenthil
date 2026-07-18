@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Mahi
+# Hi there ,I'm Mahathy
 
 🎓 M.Sc. Data Science Student
 
